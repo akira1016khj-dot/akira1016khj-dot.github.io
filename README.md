@@ -1,0 +1,1 @@
+# akira1016khj-dot.github.io
